@@ -9,3 +9,4 @@ třetí hajat nedovede.
 
 A to čtvrté prská,
 a ocáskem mrská.
+A to babička upekla.
