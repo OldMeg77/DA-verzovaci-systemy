@@ -11,3 +11,5 @@ točí se mi sukénka.
 
 Běžím, běžím k sluníčku
 osušit si sukničku.
+
+To je ale básnička pro perverty, ne pro děti. 
