@@ -1,4 +1,4 @@
-# Brambora
+# Bandora
 
 Kutálí se ze dvora
 takhle velká brambora.
